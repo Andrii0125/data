@@ -6,3 +6,6 @@ https://drive.google.com/file/d/1_749lXvB13ejpF2vH1i9cuMChofxTsYH/view?usp=shari
 
 CC-CV_2
 https://drive.google.com/file/d/1olpMGg8-FUPbQNWweRE_hColwH7dH3hQ/view?usp=sharing
+
+RFSoc_2
+https://drive.google.com/file/d/1_W-0vDTReLgved_MsI4avea8521kGvCP/view?usp=sharing
