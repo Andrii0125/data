@@ -1,3 +1,6 @@
+Ku_Amp
+https://drive.google.com/file/d/1n33mWCvGFJm1CbKqOhLMs1WCAsh0xsiI/view?usp=sharing
+
 RFSoC_1
 https://drive.google.com/file/d/1tPVY8f4-t4qKsVcL1U-V62Zc7nz2PuaN/view?usp=sharing
 
